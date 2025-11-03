@@ -1,4 +1,4 @@
-# CASI MATS — Task 2.1.5: **Literature search **
+# CASI MATS — Task 2.1.5
 ### By: Parin Pengpun
 
 ## What I looked for
